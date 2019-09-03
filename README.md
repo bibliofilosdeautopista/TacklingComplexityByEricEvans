@@ -22,5 +22,5 @@ Estan invitados a este club de lectura, un equipo de desarrolladores
 ([@Gyo](https://twitter.com/Gyo_g),
 [@Robs](https://twitter.com/quowtf),
 [Angel](https://twitter.com/angel_mandu) y
-[yo](https://twitter.com/pazthor)les extienden la invitación a uno de
+ [yo](https://twitter.com/pazthor)les extienden la invitación a uno de
 los temas que conocimos cuando empezamos a trabajar en esta industria.
